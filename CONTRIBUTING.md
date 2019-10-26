@@ -42,5 +42,5 @@
 40. Victor Kiprop : vkkirui@kabarak.ac.ke   
 41. Keith Macharia : keithmacharia0@gmail.com   
 42. Trevor Njoroge : njoroge494@gmail.com   
-43. Habiton Kipkemboi : habitonkipkemboi@gmail.com    
-44. Timz Owen         : ktimothy@kabarak.ac.ke
+43. Habiton Kipkemboi : habitonkipkemboi@gmail.com 
+44. Hezron koech  : koechezron5995@gmail.com  
